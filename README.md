@@ -39,7 +39,8 @@ G68435-2026 岡本　琉斗
 3. #### 参考
 [拓殖大学ホームページ](http://www.takushoku-u.ac.jp "Takushoku University")より
 
-それでは:+1:
+
+:+1:
 
 ---
 
